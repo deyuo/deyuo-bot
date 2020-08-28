@@ -1,6 +1,6 @@
-#De~Yuo!
+# De~Yuo!
 
-###Something important, figure it out urself
+### Something important, figure it out urself
 <br />
 <br />
 <br />
